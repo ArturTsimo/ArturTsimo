@@ -1,4 +1,12 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on good company
+_____________________________________
+/ Don't you feel more like you do now \
+\ than you did when you came in?      /
+ -------------------------------------
+        \   ^__^
+         \  (oo)\_______
+            (__)\       )\/\
+                ||----w |
+                ||     ||
 
